@@ -50,3 +50,7 @@ Maintaining this page and making these files accessible takes effort. If you'd l
 * **Toss Bank**: `1908-3160-7026`
 
 Thank you so much for your kind support! 🙏
+
+
+# also try KOREAN VERSION
+GO TO THERE NOW! >> http://rct2.kjy-acops.kro.kr/
