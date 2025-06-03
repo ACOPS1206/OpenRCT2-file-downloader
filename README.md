@@ -2,7 +2,7 @@
 
 Hey there! Have you been wanting to play OpenRCT2 but found it tricky to get your hands on the original RollerCoaster Tycoon 2 (RCT2) files? Don't worry, you're in the right place! This page was made just for you.
 
-[![GO TO THERE NOW!](http://rct2-en.kaps.kro.kr/)]
+Go To There Now! >> http://rct2-en.kaps.kro.kr/
 
 ## ✨ What You'll Love About This Website!
 
@@ -16,7 +16,7 @@ This website makes it super easy to **download the essential RCT2 original files
 
 Click the button below to download the RCT2 original files and dive straight into the amazing world of OpenRCT2!
 
-[![Download RCT2 Files](http://rct2-en.kaps.kro.kr/)]
+Download RCT2 Files >> http://rct2-en.kaps.kro.kr/
 
 ---
 
